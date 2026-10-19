@@ -6,7 +6,7 @@ Wirtschaftsinformatik 5. Semester
 
 ## Meine bisherige Erfahrung mit Softwareentwicklung
 
-Schlechte 
+Schlechte (wirklich sehr schlechte...)
 
 ## Das erwarte ich von der Veranstaltung
 
